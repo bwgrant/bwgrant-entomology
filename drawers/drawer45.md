@@ -3,7 +3,7 @@
 **Location:** Cabinet 2, Shelf 3  
 **Last Updated:** July 2026  
 
-![Box Overhead Photo](images/box-45.jpg)
+![Box Overhead Photo](images/drawer45.jpg)
 
 ## Contents by Unit Tray
 
