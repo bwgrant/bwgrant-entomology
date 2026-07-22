@@ -1,1 +1,1 @@
-# BWG Entomology Collection, created July 2026
+# BWG Entomology Collection, created 22 July 2026
